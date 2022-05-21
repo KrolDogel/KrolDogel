@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @KrolDogel
+- 👀 I’m interested in Medicine, programing, military
+- 🌱 I’m currently learning Python, LUA
+- 📫 you can reach me on discord - Król Dogeł#4583
+- 🏴 I'm from Poland 
